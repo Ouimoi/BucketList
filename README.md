@@ -13,3 +13,6 @@ Something I hope to do or have before I turn zombie,keep updating
 ### Adventure
 * Go out with Bear Grylls
 * Visit the Salzburg
+
+### Change
+* Change the annual count down music for HK back to 明天出發
