@@ -6,7 +6,7 @@ Something I hope to do or have before I turn zombie,keep updating
 * Be a guest in Ellen DeGeneres' Show
 * Go to Michael Buble's concert
 * Buy the original Hawkeye costume
-
+* Ask Michael to sing Wonderful Tonight again
 ### Body
 * Have a hair implant
 
